@@ -1,1 +1,0 @@
-# Farmer-support-system-
